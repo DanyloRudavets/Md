@@ -7,5 +7,5 @@ Scarlett Ingrid Johansson (/dʒoʊˈhænsən/;[1] born November 22, 1984) is an 
 * 2003–2004: Transition to adult roles
 * 2005–2009: Collaborations with Woody Allen
 * 2010–2013: Marvel Cinematic Universe and worldwide recognition
-* 2014–2020: Blockbuster films and critical acclaim
-* 2021–present: Black Widow lawsuit and professional expansion
+* [2014–2020: Blockbuster films and critical acclaim](https://en.wikipedia.org/wiki/Scarlett_Johansson#2014%E2%80%932020:_Blockbuster_films_and_critical_acclaim)
+* [2021–present: Black Widow lawsuit and professional expansion](https://en.wikipedia.org/wiki/Scarlett_Johansson#2021%E2%80%93present:_Black_Widow_lawsuit_and_professional_expansion)
